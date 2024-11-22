@@ -7,7 +7,7 @@ Aku Si Juragan Kosan adalah game simulasi yang populer di mana pemain mengambil 
 ### Apa Itu Aku Si Juragan Kosan Mod APK 1.0.9?
 Aku Si Juragan Kosan Mod APK adalah versi modifikasi dari game asli, di mana beberapa fitur premium telah dibuka secara gratis. Salah satu daya tarik utama dari versi ini adalah fitur unlimited money, yang memungkinkan Anda membeli segala sesuatu tanpa batasan. Dengan uang tak terbatas, Anda bisa fokus membangun kos-kosan impian tanpa harus khawatir tentang penghasilan dalam game.
 
-                                           ![aku-si-juragan-kosan-apk-download](https://github.com/user-attachments/assets/e57ceeaa-bbf7-476b-99d6-eea542cdc001)
+ ![aku-si-juragan-kosan-apk-download](https://github.com/user-attachments/assets/e57ceeaa-bbf7-476b-99d6-eea542cdc001)
 
 
 Fitur Unggulan Aku Si Juragan Kosan Mod APK 1.0.9
